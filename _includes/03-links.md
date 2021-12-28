@@ -1,1 +1,1 @@
-[GitHub Profile] (https://github.com/divchevcurr)
+[GitHub] (https://github.com/divchevcurr)
